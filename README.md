@@ -1,0 +1,2 @@
+# premium-iron-oxide-finish-001-iron-oxide-finish-rust-patin
+Tired of unpredictable rust finishes and wasted materials? Your iron oxide experiments deserve a system that captures every variable for repeatable, stunning patinas.  This Notion template transforms your chaotic iron oxide experiments into a structured, repeatable craft studio. By organizing formulas, substrates, and timing in one place, you elimi
